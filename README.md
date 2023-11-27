@@ -10,5 +10,5 @@ lorem lorem lorem lorem lorem lorem lorem lorem lorem lorem
 
 ***
 
-[구글링크](ㅗㅅ센://ㅈㅈㅈ.해ㅐ힏.채ㅡ)
+[구글링크](https://www.google.com)
 
